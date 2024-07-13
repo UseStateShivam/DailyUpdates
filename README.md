@@ -7,5 +7,6 @@ the goal that i am setting for the next 100 days is as follows
   3) also make a saas casino (idk what i am gonna do with that, its just a thing that i have in my mind)
   4) 3 commits/day fro the next 100 days
   5) finally build a dashing protfolio.......
+
 July 14, 2024 ---->
 
